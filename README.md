@@ -1,2 +1,2 @@
-# sevenstreamsschool
+# sevenstreamsschool.cutclicks.com
 Description optional
